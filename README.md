@@ -1,6 +1,6 @@
 ## Hi there 👋 Jason here
 
-- 🔭 In another life, I'd be an AI Software Engineer.
+- 🔭 In another life, I'd be an AI Software Engineer. On it ☝
 - 🌱 I’m currently learning how to code my imaginations into existence.
 - 👯 I’m looking to collaborate on **BioAI projects**.
 - 💬 Ask me about Gene therapy, Biomedicine, Regenerative medicine, Sci-Fi.

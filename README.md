@@ -6,5 +6,5 @@
 - 💬 Ask me about Gene therapy, Biomedicine, Regenerative medicine, Sci-Fi.
 - 📫 How to reach me: **SHOUT!**
 - 😄 Pronouns: He/Him/You know who
-- ⚡ Fun fact: Refresh Page for Fun fact...
+- ⚡ Fun fact: Refresh Page...
 

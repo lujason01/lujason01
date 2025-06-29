@@ -4,8 +4,9 @@
 - 🌱 I’m learning how to code my imaginations into existence. Alakazam 💥
 - 👯 I’m looking to collaborate on **BioAI projects**.
 - 💬 Ask me about Gene therapy, Biomedicine, Regenerative medicine and Sci-Fi projects.
-- 📫 How to reach me: **SHOUT!**  [LinkedIn](www.linkedin.com/in/lubega-jason) | [Email](mailto:lubegajason@gmail.com)
+- 📫 How to reach me: **SHOUT!**  [LinkedIn](https://www.linkedin.com/in/lubega-jason/) | [Email](mailto:lubegajason@gmail.com)
 
 - 😄 Pronouns: He/Him/You know who
 - ⚡ Fun fact: Refresh Page.
 
+ 
